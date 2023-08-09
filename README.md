@@ -1,2 +1,0 @@
-# hiphop
- Vietnamese rapper lyrics
